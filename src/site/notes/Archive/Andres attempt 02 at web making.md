@@ -23,6 +23,8 @@ I think speculation is a popular spectrum within games concerned with change/jus
 
 But could this also be some sort of green washing, low effort escapism that gets rapidly forgotten in a reality that has no time to implement imaginative alternatives?
 
+[[Excalidraw/La Vaca y la Vieja.excalidraw\|La Vaca y la Vieja.excalidraw]]
+
 radical-playgrounds
 wakeup protocol
 
